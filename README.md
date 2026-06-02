@@ -17,6 +17,6 @@ I also do roblox stuff so make sure to check me out on there too!
 ## Contact
 - GitHub: https://github.com/ItsMeRockyFiles
 - Discord: totoisawsome
-- Email: you@example.com
+- Email: i dont do this
 
 ---
