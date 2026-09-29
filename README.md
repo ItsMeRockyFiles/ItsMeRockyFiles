@@ -1,10 +1,9 @@
-# Hi, I'm Toto 👋
+# Hi, I'm Rocky 👋
 
 ---
 
 ## About Me
 I just do and make whatever is on my mind and i will post most of them on here!
-I also do roblox stuff so make sure to check me out on there too!
 ---
 
 ## Projects
